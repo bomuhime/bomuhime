@@ -1,4 +1,5 @@
-[![](banner.png)](https://www.pixiv.net/en/users/121023122)
+[![](banner.png)](https://www.pixiv.net/users/121023122)
 
-> Banner artwork from パンプキンナイト (原作・作画：外薗昌也・谷口世磨)  
+> CHISATO NISHIKIGI © 2025 A-1 Pictures / Lycoris Recoil
+> Fanart by me
 > Clicking the banner links to my Pixiv
